@@ -1,4 +1,4 @@
-SEO Specialist & Digital Marketing | IDN PLAY (idnplay.com) - Gaming Online Provider (On-Site)
+SEO Specialist & Digital Marketing |Online Provider (On-Site)
 Januari 2022 - Sekarang
 Melakukan integrasi website dengan Google Product Platform seperti Google Analytics, Google
 Search Console, Google Tag Manager, untuk memperoleh data analisa digital marketing dan SEO
